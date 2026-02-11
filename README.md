@@ -1,4 +1,4 @@
-# Hi, I’m Michael 👋
+# Hi, I’m Michael Sowek👋
 
 🎓 MBA | Business Data Storyteller
 📊 Business Intelligence | FP&A | Supply Chain Analytics  
